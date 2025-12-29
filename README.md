@@ -1,3 +1,3 @@
 # PORTFOLIO.MANOJKUMAR
 
-https://Manojkumar6304275755.github.io/MANOJKUMAR.PORTFOLIO/
+https://Manojkumar6304275755.github.io/PORTFOLIO.MANOJKUMAR/
